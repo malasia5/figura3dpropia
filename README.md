@@ -1,0 +1,1 @@
+# figura3dpropia
